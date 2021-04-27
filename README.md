@@ -1,2 +1,2 @@
 # STC
-empty bitch
+Plese run (has hidden files)
